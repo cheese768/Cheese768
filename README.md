@@ -1,6 +1,6 @@
 ^she/he^
 
-drawing n anismting :J
+drawing n animating :J
 
 
 PLEEEEAASSEEE INT IF YOU LIKE DC
